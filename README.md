@@ -91,7 +91,7 @@ Dein Papa
 
 ## Referenzen
 
-- - [📄 Masterarbeit: Reflexionen über elterliche Entfremdung und Sinnsuche](./Masterarbeit.pdf)
+- [📄 Masterarbeit: Reflexionen über elterliche Entfremdung und Sinnsuche](./Masterarbeit.pdf)
 
 - [Weil du mir gehörst – ARD Mediathek (Film über Eltern-Kind-Entfremdung)](https://www.ardmediathek.de/video/film/weil-du-mir-gehoerst/swr/Y3JpZDovL3N3ci5kZS9hZXgvbzE1OTgyMzM)
 
