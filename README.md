@@ -89,6 +89,12 @@ sondern weil du du bist.
 In tiefer Liebe,
 Dein Papa
 
+## Referenzen
+
+- - [📄 Masterarbeit: Reflexionen über elterliche Entfremdung und Sinnsuche](./Masterarbeit.pdf)
+
+- [Weil du mir gehörst – ARD Mediathek (Film über Eltern-Kind-Entfremdung)](https://www.ardmediathek.de/video/film/weil-du-mir-gehoerst/swr/Y3JpZDovL3N3ci5kZS9hZXgvbzE1OTgyMzM)
+
 ## Lizenz
 
 Dieses Projekt und dieser Text sind unter der [Creative Commons Attribution 4.0 International License (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/) lizenziert. Du darfst sie teilen, anpassen und weiterverbreiten – bitte nenne dabei den ursprünglichen Autor.
