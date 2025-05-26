@@ -1,6 +1,6 @@
 # Ich bin nicht, was mir passiert ist – ich bin, was ich wähle zu sein
 
-# 💬 Persönliche Reflexion: Was ich wähle zu sein für Lily
+# 💬 Persönliche Reflexion: Was ich wähle für Lily zu sein 
 
 > *„Ich bin nicht das, was man mir angetan hat – ich bin das, was ich aus dem Erlebten zu erschaffen wähle.“*
 ---
