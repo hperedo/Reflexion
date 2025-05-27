@@ -95,6 +95,11 @@ Dein Papa
 
 - [Weil du mir gehörst – ARD Mediathek (Film über Eltern-Kind-Entfremdung)](https://www.ardmediathek.de/video/film/weil-du-mir-gehoerst/swr/Y3JpZDovL3N3ci5kZS9hZXgvbzE1OTgyMzM)
 
+    - Merken
+Ein gutes Jahr nach ihrer Scheidung stehen Julia und Tom erneut vor Gericht. Das Sorgerecht für die gemeinsame Tochter soll auf Julias Antrag hin neu entschieden werden. Bei der Befragung gerät die achtjährige Anni in Panik - sie möchte lieber tot sein, als mit ihrem Vater zu tun zu haben. Was hat zu dieser vehementen Ablehnung geführt? Ein Jahr zuvor sieht es noch anders aus. Julia und Tom teilen sich das Sorgerecht. Anni verbringt jedes zweite Wochenende bei ihrem Vater, den sie innig liebt. Tom hat, anders als Julia, eine neue Partnerin. Mit Jenny und ihrer kleinen Tochter Mia versteht Anni sich gut, es wächst so etwas wie eine neue Familie zusammen. Nur Julia kommt mit der neuen Situation nicht zurecht. In ihrem Schmerz beginnt sie, Anni zu manipulieren und gegen den Vater einzunehmen. Tom braucht lange, um zu begreifen, was hier sich vorgeht. Als Julia mit allen Mitteln für die Aufhebung des gemeinsamen Sorgerechts kämpft, wird klar, dass sie Tom aus Annis Leben werfen will. 
+Mit Julia Koschitz, Felix Klare, Lisa Marie Trense, Merle Collett, Teresa Harder, Lutz Blochberger
+Regie Alexander Dierbach
+
 ## Lizenz
 
 Dieses Projekt und dieser Text sind unter der [Creative Commons Attribution 4.0 International License (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/) lizenziert. Du darfst sie teilen, anpassen und weiterverbreiten – bitte nenne dabei den ursprünglichen Autor.
